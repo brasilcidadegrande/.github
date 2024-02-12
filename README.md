@@ -1,2 +1,0 @@
-
-# Brasil Cidade Grande
